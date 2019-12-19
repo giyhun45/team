@@ -1,2 +1,1 @@
-# team
-# Kang dong ho
+# ★
