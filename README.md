@@ -1,2 +1,2 @@
 # team
-# GG
+# TAK GI HYEON
