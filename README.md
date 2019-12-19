@@ -1,2 +1,2 @@
 # team
-# TAK GI HYEON
+# 6
